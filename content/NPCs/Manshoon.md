@@ -1,0 +1,7 @@
+- an animatronic double of manshoon that is programmed to not be able to do any evil
+- the zhents created him as a warning to other zhentarim to not fall to the fallacies of the past should manshoon ever rise again
+	- something something cold war style propoganda
+- under a gaes to harm no one 
+- (warforged 5)
+- will cooperate with the party if they cast remove curse/greater restoration and attempt to get their help to re-take over the zhentarim
+- he has a zhentarim goon as handler who is snarky and 
